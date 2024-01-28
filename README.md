@@ -2,7 +2,7 @@
 - 👀 Estou interessado back-end and front-end
 - 💞️ Estou procurando colaborar com pessoas que queiram aprender programação
 - 📫 Como chegar até mim - pelo meu Discord: 1Hawken
-- 😄 Pronouns: Ele/Dele
+- 😄 Pronomes: Ele/Dele
 
   
 
